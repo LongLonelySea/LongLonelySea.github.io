@@ -1,2 +1,0 @@
-# LongLonelySea.github.io
-Homepage
